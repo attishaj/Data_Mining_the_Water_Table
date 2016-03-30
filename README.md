@@ -1,5 +1,5 @@
-Current Rank: 70.  
-Number of Competitors: 1,360  
+Current Rank: 70  
+Total Number of Competitors: 1,360  
 (As of 30 March 2016)
 
 
